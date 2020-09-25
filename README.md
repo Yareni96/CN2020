@@ -1,2 +1,2 @@
 # CN2020
-Martha Yareni Hernández J
+Martha Yareni Hernández Juarez
